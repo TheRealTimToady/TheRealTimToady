@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheRealTimToady
+- 👋 Hi, I’m @TheRealTimToady (yes they are all Tim Toady) 
 - 👀 I’m interested in ... And +++ even *** &  ^] 
 - 🌱 I’m currently learning: yes. 
 - 💞️ I’m looking to collaborate on: something boring. No wait, I mean the opposite. 
